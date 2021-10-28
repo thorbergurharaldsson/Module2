@@ -41,7 +41,8 @@
 
 ## Companies in travel indestry
 
-- [bokun.io](https://bokun.io/)
+- [Bókun](https://bokun.io/)
+- [GODO](https://godo.is/en/)
 
 ## Personalities in the indestry
 
