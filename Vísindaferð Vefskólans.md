@@ -39,6 +39,10 @@
 - Byko
 - Tækniskólinn
 
+## Companies in travel indestry
+
+- [bokun.io](https://bokun.io/)
+
 ## Personalities in the indestry
 
 #### Could help us find contacts or be hosts
